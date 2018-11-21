@@ -1,4 +1,4 @@
 # Career-CV
 Career CV Web Template
 
-https://www.bmcsoft.me/profile/
+https://www.teamblackorder.com/bhanuka/
